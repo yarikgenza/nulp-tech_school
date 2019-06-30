@@ -20,8 +20,11 @@
 **We prevent members of the community from**
  
 - Unacceptable behavior
+
 - Racism
+
 - Discrimination
+
 - Any kind of harassment
 
 > Members who do any type of unacceptable behavior that may endanger the safety and dignity of other members of the community will be immediately excluded in community access. 
